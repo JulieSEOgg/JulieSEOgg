@@ -91,17 +91,6 @@ I operate with three pillars:
 
 ---
 
-
-### 💬 Feedback From The Community
-
-> “JulieSEOgg is the only person I trust for broker reviews. Saved me thousands of dollars.” – @realtraderJoe  
-> “Her trading templates changed how I approach binary altogether. It’s finally consistent.” – @mariafxpro  
-> “Straight talk, no hype. That’s rare in this space.” – @optionmark
-
-Want to share your experience? Drop a comment in the Discussions section or email me directly.
-
----
-
 ### 🤝 Let’s Connect!
 
 - 🌐 Website:  
